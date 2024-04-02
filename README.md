@@ -1,2 +1,0 @@
-# Margooo.github.io
-EYOOO
